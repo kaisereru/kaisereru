@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kaisereru
 - 👀 Known as ERU
-- 📫 Contact: @erulight.bsky.social
+- 📫 Contact: @01001100.bsky.social
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I really really love cats!
 
